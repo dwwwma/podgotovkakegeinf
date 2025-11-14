@@ -1,2 +1,0 @@
-# podgotovkakegeinf
-podgotovkakegeinf
